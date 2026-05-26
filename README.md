@@ -19,12 +19,13 @@ We are actively seeking academic, public-private, and inventor partners, with a 
 
 Let's connect and collaborate:
 
-•Join the Project: Contribute your expertise via our registration form
+Join the Project:
+• https://proamazonia-euzbw5dx.manus.space/ (provisionally)
 
-•WhatsApp Group: Engage with our project community
+• Engage with our project community at WhatsApp: (+5566) 999899909 (call me and I'll return with the link
 
-•LinkedIn: https://www.linkedin.com/in/denis-nogueira-232bba6b
+• Contact vi LinkedIn: https://www.linkedin.com/in/denis-nogueira-232bba6b
 
-•ResearchGate: https://www.researchgate.net/profile/Denis-Nogueira
+• Or sent me a e-mail: denis.nogueira@ifmt.edu.br
 
-•Email: denis.nogueira@ifmt.edu.br
+• See more at ResearchGate: https://www.researchgate.net/profile/Denis-Nogueira
