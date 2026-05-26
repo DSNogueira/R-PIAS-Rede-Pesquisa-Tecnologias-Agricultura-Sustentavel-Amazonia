@@ -26,6 +26,6 @@ Join the Project:
 
 • Contact via LinkedIn: https://www.linkedin.com/in/denis-nogueira-232bba6b
 
-• Or sent me a e-mail: denis.nogueira@ifmt.edu.br
+• Or send me an email: denis.nogueira@ifmt.edu.br
 
 • See more at ResearchGate: https://www.researchgate.net/profile/Denis-Nogueira
