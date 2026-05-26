@@ -24,7 +24,7 @@ Join the Project:
 
 • Engage with our project community at WhatsApp: (+5566) 999899909 (call me and I'll return with the link
 
-• Contact vi LinkedIn: https://www.linkedin.com/in/denis-nogueira-232bba6b
+• Contact via LinkedIn: https://www.linkedin.com/in/denis-nogueira-232bba6b
 
 • Or sent me a e-mail: denis.nogueira@ifmt.edu.br
 
