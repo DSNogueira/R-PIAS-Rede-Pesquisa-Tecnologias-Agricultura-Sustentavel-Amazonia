@@ -21,7 +21,7 @@ Let's connect and collaborate:
 
 •Join the Project: Contribute your expertise via our registration form
 
-•WhatsApp Group: Engage with our project community
+•WhatsApp Group: Engage with our project community at <https://chat.whatsapp.com/DEZOYsotaihBXFHGg4b9D4>
 
 •LinkedIn: https://www.linkedin.com/in/denis-nogueira-232bba6b
 
