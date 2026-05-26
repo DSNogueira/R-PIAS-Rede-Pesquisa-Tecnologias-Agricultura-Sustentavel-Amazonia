@@ -19,8 +19,7 @@ We are actively seeking academic, public-private, and inventor partners, with a 
 
 Let's connect and collaborate:
 
-Join the Project:
-• https://proamazonia-euzbw5dx.manus.space/ (provisionally)
+• Join the Project: https://proamazonia-euzbw5dx.manus.space/ (provisionally)
 
 • Engage with our project community at WhatsApp: (+5566) 999899909 (call me and I'll return with the link
 
